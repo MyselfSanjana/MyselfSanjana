@@ -1,6 +1,5 @@
 - 👋 Hi, I’m SANJANA BANSAL
-- 👀 I’m interested in learning new things.
-- 🌱 I’m currently learning java
+- 👀 interested in learning new things🌱 .
 - 😄 Pronouns: she/her
 
 
