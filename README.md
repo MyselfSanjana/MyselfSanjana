@@ -1,5 +1,5 @@
 - 👋 Hi, I’m SANJANA BANSAL
-- 👀 interested in learning new things🌱 .
+- 👀 I am a CSE student who is keen to learn new things🌱 .
 - 😄 Pronouns: she/her
 
 
